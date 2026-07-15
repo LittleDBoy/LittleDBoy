@@ -2,6 +2,8 @@
 - 🎮 I really like video games.                                                      
 - 🖥️ I'm starting to learn programming, im very exited.
 - Well, i'm doing my best to be a great programmer.
+
+- 
 ___________________1111111111111__________________
 ______________1¶¶¶¶¶¶¶¶¶¶¶¶¶¶¶¶¶¶¶¶¶1_____________
 ___________1¶¶¶¶¶¶111111111111111¶¶¶¶¶¶1__________
